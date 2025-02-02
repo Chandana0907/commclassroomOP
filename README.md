@@ -1,2 +1,2 @@
 # commclassroom
-kunal learing github amazing..
+kunal is learing github amazing..
